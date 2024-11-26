@@ -16,7 +16,7 @@ You must send me screenshot images of running result of first problem as attache
 Added 'magic' item must be appear item bar and act.
 If you send me first result, you are invited on our interview.
 Answer of second problem will be discuss on interview.
-If test result is staisfied, we will offer milstones on Fiverr with your suggestion.
+If test result is satisfied, we will send you NDA documentation.
 
 Before work, we recomend to confirm if our project have some problems or any error.
 
